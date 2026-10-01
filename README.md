@@ -14,7 +14,6 @@ Pesquisa realizada em 30/09/2026. Tarifas são snapshots encontrados online, ger
 - [K-Platz — Expedia](https://www.expedia.com.br/Florianopolis-Hoteis-K-PLATZ-HOTEL.h68569482.Hotel-Reservas): R$ 415 observado; [site oficial de reservas](https://book.omnibees.com/chain/7242/hotel/13440?currencyId=109&lang=pt-BR&q=13440) indicou tarifas desde R$ 528.
 - [Hotel São José — site oficial](https://www.saojosehotel.com.br/): preço deve ser consultado diretamente.
 - [Don Zepe — Expedia](https://www.expedia.com.br/Florianopolis-Hoteis-Hotel-Don-Zepe.h4344191.Hotel-Reservas) e [KAYAK](https://www.kayak.com.br/Hoteis-Hotel-Don-Zepe-Florianopolis.359652.ksp): referências recentes na faixa de R$ 282–393/noite.
-- [Pousada Casa da Lagoa — KAYAK](https://www.kayak.com.br/Hoteis-Pousada-Casa-da-Lagoa-Florianopolis.401184.ksp) e [site oficial](https://pousadacasadalagoa.com.br/): referências recentes de cerca de R$ 396–676/noite; a tarifa direta precisa ser consultada para as datas.
 - [Pousada Native — Booking](https://www.booking.com/hotel/br/native-poshtel.pt-br.html) e [Decolar](https://www.decolar.com/hoteis/h-5604566/native-pousada-florianopolis): referências recentes de cerca de R$ 402–642/noite.
 - [Airbnb perto da UFSC](https://www.airbnb.com/ufsc-florianopolis-brazil/stays/apartments): referência para anúncios como studios em Trindade, Pantanal e entorno. As faixas exibidas para apartamentos são estimativas de planejamento, não preços publicados para as datas do casamento.
 
